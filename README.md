@@ -1,4 +1,7 @@
+Decoding E-commerce Dynamics: A Deep Dive into Target’s Brazilian Operations
+
 <img width="1431" height="763" alt="Image" src="https://github.com/user-attachments/assets/e821b4d3-6793-477a-a966-e242f391a385" />
+
 
 Context:
 
