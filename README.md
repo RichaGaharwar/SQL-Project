@@ -1,3 +1,5 @@
+<img width="1431" height="763" alt="Image" src="https://github.com/user-attachments/assets/e821b4d3-6793-477a-a966-e242f391a385" />
+
 Context:
 
 Target is a globally renowned brand and a prominent retailer in the United States. Target makes itself a preferred shopping destination by offering outstanding value, inspiration, innovation and an exceptional guest experience that no other retailer can deliver.
